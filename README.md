@@ -1,4 +1,6 @@
-[![KISS - I Was Made For Loving' You](http://dja73.d.j.pic.centerblog.net/8ev534ej.jpg)](http://www.youtube.com/watch?v=diKz9udywg4)
+# Play NOW »
+
+[![KISS - I Was Made For Loving' You](http://dja73.d.j.pic.centerblog.net/8ev534ej.jpg)](http://www.youtube.com/watch?v=diKz9udywg4){:target="_blank"}
 
 
 # umm, yeah!
